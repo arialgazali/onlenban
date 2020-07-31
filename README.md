@@ -1,2 +1,2 @@
-# online-ban
-buat manggil kang tambal ban
+# onlenban
+lack of sleep is dangerous bro, seriously
